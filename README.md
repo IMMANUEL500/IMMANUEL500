@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @IMMANUEL500
-- 👀 I’m interested in Open-Source Projects
+- 👀 I’m interested in Open-Source Projects, Collaborations and Web3 Projects
 - 🌱 Experienced in  Web3 Projects, Content, and Technical writing.
 - 💞️ I’m looking to collaborate with Web3 Projects to  Provide informative technical articles to help educate your audience in Understanding your Project.
 - 📫 You can reach me on dennischibuike1@gmail.com
